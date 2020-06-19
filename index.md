@@ -10,3 +10,4 @@ He is also the secret husband of Padmé Amidala, father of Princess Leia, and gr
 * not lukes dad
 * imperial
 > I am your Father
+<img src="https://en.wikipedia.org/wiki/Darth_Vader#/media/File:Darth_Vader.jpg"/>
